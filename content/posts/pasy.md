@@ -1,5 +1,5 @@
 ---
-title: "PROSZĘ SIADAĆ, ZAPIĄĆ PASY !"
+title: "Proszę Siadać, Zapiąć Pasy !"
 date: 2022-12-04T19:37:51Z
 draft: false
 ---

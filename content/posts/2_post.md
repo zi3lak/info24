@@ -1,5 +1,5 @@
 ---
-title: "PRZEBUDZENIE LUDZKOŚCI – część 1"
+title: "Przebudzenie Ludzkości – część 1"
 date: 2022-12-03T18:19:40Z
 draft: false
 ---
