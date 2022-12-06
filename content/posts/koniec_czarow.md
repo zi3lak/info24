@@ -1,5 +1,5 @@
 ---
-title: "Koniec Czaró Mary"
+title: "Koniec Czarów Mary"
 date: 2022-12-06T15:10:00Z
 draft: true
 ---
