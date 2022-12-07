@@ -1,6 +1,6 @@
 ---
 title: "Przebudzenie Ludzkości – część 1"
-date: 2022-12-03T18:19:40Z
+date: 2022-01-01T18:19:40Z
 draft: false
 ---
 Czym jest Re-Alność?

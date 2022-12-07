@@ -1,6 +1,6 @@
 ---
 title: "Kręgosłup"
-date: 2022-12-02T18:32:33Z
+date: 2022-02-01T18:32:33Z
 draft: false
 ---
 Kręgosłup jest jednym z ważniejszych elementów budowy naszego ciała. Zbudowany jest z 30 kręgów. Niestety w obecnych czasach zdrowie kręgosłupa jest wystawione na ogromną próbę. Siedzący tryb życia i brak odpowiedniej ilości ruchu sprawia, że bardzo łatwo o zwyrodnienia nawet u młodych osób. Pamiętajmy, że zdrowy kręgosłup nie boli i jest stabilny.Kręgosłup porównuje się do rury, w której znajduje się rdzeń kręgowy. To właśnie ochrona rdzenia jest głównym jego zadaniem. Kręgosłup zbudowany jest z nachodzących na siebie pierścieni kręgów i ciągnie się na całej długości naszych pleców. Poza ochroną rdzenia kręgowego kręgosłup podpiera również nasze ciało. Po części jest związany z ruchem i pełni rolę stelaża dla pozostałych kości oraz mięśni. Ludzki kręgosłup składa się z 26 kości i ma ok. 33-34 kręgi. Kręgosłup dzielimy na pięć odcinków:

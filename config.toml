@@ -1,4 +1,12 @@
-baseURL = 'http://example.org/'
+baseURL = 'https//tor.i24n.pl'
 languageCode = 'en-us'
-title = 'info24.nutube.pl'
+Title = 'info24.nutube.pl'
 theme = 'PaperMod'
+relativeurls = true
+
+[outputs]
+  home = [ "HTML", "RSS", "JSON"]
+
+[params.logo]
+        path = "/https://cdn.pixabay.com/photo/2015/10/01/17/17/car-967387_960_720.png"
+

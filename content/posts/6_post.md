@@ -1,6 +1,6 @@
 ---
 title: "Słowo na – Ż"
-date: 2022-12-03T18:49:47Z
+date: 2022-05-01T18:49:47Z
 draft: false
 
 ---

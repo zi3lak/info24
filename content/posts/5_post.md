@@ -1,6 +1,6 @@
 ---
 title: "Głos Wolnej POLSKI"
-date: 2022-12-03T18:45:31Z
+date: 2022-04-01T18:45:31Z
 draft: false
 ---
 Prawo w Polsce wyłącza z orzekania w sprawach Polaków – którzy są nie-żydami (tzw. gojów) – osoby narodowości żydowskiej i to pojmowanych w rozumieniu prawa i religii żydowskiej – ponieważ ta określa stan faktyczny i psycho-fizyczny osoby narodowości żydowskiej. To właśnie ten stan psycho-fizyczny w sposób zasadny i obiektywny wskazuje, że nie da się usunąć wątpliwości co do bezstronności wobec

@@ -1,34 +1,34 @@
 ---
 title: "Koniec Czarów Mary"
-date: 2022-12-06T15:10:00Z
-draft: true
+date: 2022-08-01T15:10:00Z
+draft: false
 ---
 Żyjemy u styku dwóch wielkich epok. Przechodzimy z epoki Ryb-Panny do epoki Wodnika-Lwa. Czemu używam „podwójnych” nazw ? Zachodnie nazewnictwo i miara czasu uwzględnia tylko 12 znaków zodiaku a czas trwania jednej epoki ustalony jest na około 2 tysiące lat.
-
+![](https://cdn.pixabay.com/photo/2018/08/09/17/00/constellation-3594963_960_720.jpg)
 W wierzeniach naszych przodków, tak zwany Swaroży Krąg podzielony był na 16 znaków i związanych z nimi epok, które trwały około 1600-1620 lat. Tak więc aby dokładniej opisać gdzie obecnie jesteśmy, używając „zachodniego” nazewnictwa musimy je nieco doprecyzować.
-
+![](https://pixabay.com/get/g2f8d42c3808378c418a31de54dbbdd0fb37ede54af36d6bac9a788f717816673cb68bf88e02e80f79dd5463c86bf9c3b_1920.jpg)
 Specyficzna epoka u której kresu przyszło nam żyć zwana jest Epoką Mary – Marzanny ( Lisicy ). Reprezentuje ona kosmiczną „zimę” ( Marzannę jeszcze dziś topi się aby powitać wiosnę / odegnać zimę ). Czym charakteryzuje się ten trudny czas, gdzie indziej zwany Epoką Kali ( Kali Jugą ) ?
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/aquarius-7617682_960_720.jpg)
 Najłatwiej będzie mi to przedstawić ukazując Wam obecność MARY i jej specyficznej energii w naszym języku. Informacje o tej sile – reprezentującej wynaturzoną energię żeńską – zapisane są w samych słowach. Znajdziemy w nich prawdziwe bogactwo prastarej Wiedzy.
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/virgo-7617694_960_720.jpg)
 W żadnej mierze nie uważam się za specjalistę czy znawcę istoty naszych energii. Przemyślenia, którymi się dziele bazują na obserwacji natury i na „czytaniu” naszego Języka – prawowitego dziedzica i spadkobiercy Języka Źródłowego - Księgi, w której napisano wszystkie inne, późniejsze Księgi.
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/taurus-7617693_960_720.jpg)
 Czy wiedza o naszym języku to jakieś „zabobony” ?
 
 Choć będąc uwarunkowanym przez „jaśnie obowiązujące” paradygmaty trudno w to uwierzyć - nasz język przechował informacje o pierwotnych wibracjach i nadrzędnych energiach regulujących Koło Życia, zostały one w nim zakodowane. Cały język, każde słowo z pierwotnej puli, każda jego najmniejsza nawet cząstka, jest prastarym Kodem / częścią Kodu.
 
 Nasi przodkowie mieli w kwestii energii i wibracji dużo większą wiedzę niż my, współcześni ( ! ).
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/scorpio-7617691_960_720.jpg)
 W swoich publikacjach ukazywałem już obecność w naszej mowie różnych językowych cząstek ( wici ) będących odbiciami KOS-micznych energii np. cząstki „RA” ( ostatnio - odc. 244, 246 ) czyli Boskiego Stwarzającego Światła ( tzw. Kwantowego Pola, Boskiej Matrycy, Matki Bogów ). Omawiałem także cząstkę „ŁAD” związaną z archetypowym przeciwieństwem MARY – boginią ŁADĄ ( ostatnio – odc. 224 ).
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/cancer-7617683_960_720.jpg)
 Wspominałem także o jednej z czterech twarzy Światowida – ROD-zie i jego obecności w naszym języku. Co ciekawe, np. Rosjanie uważają RODA za najwyższego „Boga” ale w naszych wierzeniach, odbitych w naszej Mowie, towarzyszą mu WIT, MIR i KOS ( o naturze oblicz Światowida można poczytać u Pana Czesława Białczyńskiego ) tworzący C-AŁ-ŁO-ŚĆ Nadrzędnego Obserwatora Boskiej Matrycy jakim jest Światowid, który swoim WID-em „wyodrębnia” nas z „Boskiej Matrycy” podtrzymując Świat, włącznie z nami, w formie w jakiej go znamy – mamy tu „ścisłą” i harmonijną współpracę zasady męskiej i żeńskiej.
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/leo-7617686_960_720.jpg)
 Nadrzędny Obserwator ( Zasada Męska ) i Kwantowe Pole ( Zasada Żeńska ), jak określiła by to współczesna nauka. Światowid i RA – Nieskończona Energia.
 
 Kiedy znów będziesz miał ochotę być „niegrzeczny” to miej na uwadze – ktoś zawsze cię WIDZI :)
 
 Nie chodzi o to, że ten „ktoś” cię ocenia i potem ukarze – jak starotestamentowy „Bóg”. Masz wolną wolę a na Ziemi są pewne regulujące życie prawa – chodzi o to, że ten „ktoś” cię WIDZI i dlatego w ogóle Istniejesz.
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/pisces-7617687_960_720.jpg)
 Gdyby tak nie było, gdybyś nie był „MILE WIDZIANY” to – jako zbiór cząstek, wrócił byś do stanu „nieuporządkowania” - do pierwotnego Chaosu czyli do Łona Bogini Matki.
 
 Nasz Język przechował dla nas prastare klucze, które zazębiają się z najnowszą nauką. Wiele dopiero przed nami. Tymczasem w słowach – już to jest ! [ Patrz np. odcinek o słowie PR(z)ES-ST-TR(z)EŃ – nr 221 ]
@@ -40,17 +40,17 @@ Dowiedzmy się zatem trochę więcej o epoce u której kresu przyszło nam żyć
 Do melodii jakiej energii Człowiek „tańczył” przez ostatnie wieki ?
 
 2. MARIONETKI W MARAZMIE
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/aries-7617681_960_720.jpg)
 „Marzanna – rzekoma bogini słowiańska wymyślona przez Długosza, który ją wziął z pieśni wielkopostnych, kiedy dzieci na Śląsku i Wielkopolsce w XIV i XV w. obnosiły i topiły lalkę-Marzannę ( Marzankę, Dziewankę ), symbol zimy i śmierci” - Słownik Mitów i Tradycji Kultury, Władysław Kopaliński
 
 Długosz jakoby „wymyślił” Marzannę ale „wziął” ja z pieśni, którą śpiewały dzieci.
 
 To jak w końcu – wymyślił ją, czy wziął ? Ale po co tu coś „wymyślać” - gdy pracuje się ze słowami – to wystarczy im się po prostu przyjrzeć – i tam wszystko jest !
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/sagittarius-7617690_960_720.jpg)
 Nasi przezorni przodkowie – w obliczu nadchodzących wieków zaciemnienia – Wiedzę o naturze rzeczywistości ukryli w samym Języku, Księdze Życia, która dziś na powrót jest otwarta.
 
 W tym wypadku jest inaczej – to nie kapłani dysponują Księgą ( Księgami ), którą dowolnie edytują, tłumaczą i interpretują - czy to „Pismo Święte” czy „słowiano-aryjskie Wiedy”, których nikt nie widział na oczy, ale wielu cytuje.
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/libra-7617688_960_720.jpg)
 Dostępem do tej wyjątkowej – bo Żywej Księgi - dysponuje każdy chętny. Jest ona otwartym skarbem Całej Ludzkości, i wszyscy – po poznaniu uniwersalnych kluczy - mogą z jej dobrodziejstw korzystać. Oczywiście nam, dzisiejszym Polakom jest o niebo łatwiej :)
 
 Wyciągnijmy na powierzchnię to co było ukryte przed naszymi oczami.
@@ -60,7 +60,7 @@ Wyciągnijmy na powierzchnię to co było ukryte przed naszymi oczami.
 W trakcie tej Epoki, będącej kosmiczną zimą świat zasnął, pogrążył się w MAR-azmie.
 
 Wielu ludzi stało się MAR-twych już za życia, jakby już leżeli na MAR-ach a reszta jak MAR-ionetki na sznurkach, tańczy schematycznego MAR-sza. „Czary MARY” ? Jak najbardziej !
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/gemini-7617685_960_720.jpg)
 MAR-twe się rozwija ( technologia, przemysł ) a żywe zostało zepchnięte na MAR-gines.
 
 Ludzie kupują MAR-twe jedzenie w MAR-ketach a świat opanował agresywny MAR-keting.
@@ -70,7 +70,7 @@ Wiele kobiet stało się MAR-kotnych i MAR-udnych, nagminne staje się ich MAR-g
 Powszechne jest U-MAR-twianie ciał poprzez różne wszczepy, doczepy, nakłuwanie, przekłuwanie i inne tego typu zabiegi. Botoks, silikon, tatuaż - „ciała obce” w ludzkim ciele. MAR-twota.
 
 Wielu mężczyzn, niczym kowboje z MAR-lboro w zębach, otępiałych jak po MAR-ihuanie ruszyło na podbój po więcej. Więcej czego ? Wszystkiego.
-
+![](https://cdn.pixabay.com/photo/2022/11/26/11/45/capricorn-7617684_960_720.jpg)
 Zarówno Panie jak i Panowie MAR-twią się, że mają za mało – za mało pieniędzy, albo za mało czasu, albo za mało jednego i drugiego.
 
 A przecież MAR-twić się to znaczy zabijać, czynić MAR-twym swego Ducha – niczym MAR-skośc, która dotyka np. wątroby.
@@ -84,7 +84,7 @@ Zwykliśmy MAR-zyć ( mrzonki ! ) zamiast z lekkością sięgać po to co nam pr
 Zamiast grzać się w boskim świetle naszych wnętrz, MAR-zniemy, ale udajemy ( MAR-kujemy ), że niby „wszystko fajnie”. Dopiero jak nikt nie widzi MAR-szczymy czoło w zadumie: „dokąd to zmierza?”
 
 Świat śnił swój KOS(z)MAR bo wczepiony był w niego KO-MAR gigant, „nocna” MARA, która z utrzymywania nas w niewiedzy o naturze energii czerpała i wciąż jeszcze czerpie niesamowite korzyści.
-
+![](https://cdn.pixabay.com/photo/2016/12/15/22/52/buddha-1910195_960_720.jpg)
 Na szczęście energia MARZANNY już płynie z prądem, w dół KOS-micznej rzeki, ale wielu MAR-uderów jeszcze trzyma się – i będzie się trzymać – resztek jej energii.
 
 Świat – jak to w Kole Życia – U-MAR-Ł na chwilę aby odrodzić się na nowo, jeszcze wspanialszym, jeszcze mocniejszym ! Skończyła się NOC, MARA musi odejść.

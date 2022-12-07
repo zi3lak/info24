@@ -1,6 +1,6 @@
 ---
 title: "Proszę Siadać, Zapiąć Pasy !"
-date: 2022-12-04T19:37:51Z
+date: 2022-09-01T19:37:51Z
 draft: false
 ---
 Witajcie. Tak, jak kilka dni temu zapowiadaliśmy, przybywamy z wieściami. My, czyli zespół [info24.NuTube.pl](https://info24.nutube.pl)Za nami czas intensywnych narad i bilansu, co „za” , a co „przeciw”. Podjęliśmy ostateczną decyzję: wracamy do starych pomysłów. Ruszamy do przodu z całym pakietem.

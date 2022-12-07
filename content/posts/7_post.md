@@ -1,6 +1,6 @@
 ---
 title: "Pałka się Przegła, Miarka się Przebrała"
-date: 2022-12-01T19:00:27Z
+date: 2022-11-01T19:00:27Z
 draft: false
 ---
 Mija właśnie czwarty miesiąc od śmierci Jana X. Człowieka dobrze nam znanego pod swoim prawdziwym imieniem i nazwiskiem. Obecnego i dostępnego od samego początku w medialnym „drugim obiegu”. Prekursora oddolnych inicjatyw stowarzyszeniowych. Patrioty i wojownika. Przyjaciela lub wroga, ale nigdy aktora. Wystarczy Wam, by skojarzyć osobę ? Aż nadto, nieprawdaż ? Dlaczego zatem tak groteskowo zmieniam personalia dobrze znanego nam człowieka ? Powodów jest kilka. Tych oczywistych, w stylu „prywatność rodziny” przytaczać nie będę. Są inne, dla mnie ważniejsze. Rzecz pierwsza to pewien symbolizm. To dla Was, by chwilę przystanąć i spostrzec, co właśnie ze sprawą się dzieje. Po drugie szyderczy pragmatyzm. Gest Pański Barona do pewnej sfory, co mylnie watahą się mieni. Dyspensa rzucona od stołu. By mogli znów strugać wariata, że temat ich nie dotyczy. Że wciąż nic nie muszą z tym robić, bo przecież nie o „Nim” jest mowa.
