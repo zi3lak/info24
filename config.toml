@@ -1,4 +1,4 @@
-baseURL = 'https//tor.i24n.pl'
+baseURL = 'https://info24.nudawaj.online/'
 languageCode = 'en-us'
 Title = 'info24.nutube.pl'
 theme = 'PaperMod'
@@ -10,3 +10,7 @@ relativeurls = true
 [params.logo]
         path = "/https://cdn.pixabay.com/photo/2015/10/01/17/17/car-967387_960_720.png"
 
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
