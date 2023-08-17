@@ -3,6 +3,7 @@ title: "Trzy porcje Tatara dwie blachy Murzynka"
 date: 2022-10-01T19:55:32Z
 draft: false
 ---
+Start
 Jeżeli jesteście ludźmi wyznającymi pogląd, że nasze wiadome przygody z ostatnich dwóch lat są dziełem czystego przypadku, to lepiej zmieńcie lekturę. Szkoda Waszego czasu. Przypadek to bowiem hulajnoga w rządowej loterii, a skoro nikt jeszcze się nią nie pochwalił…
 ![](https://cdn.pixabay.com/photo/2022/11/24/06/59/vampire-7613625_960_720.jpg)
 Spisek mimowolnie obserwujecie, jak mniemam, od dwóch lat, tak na oko. Scenariusz obecnego performance spisany był dużo wcześniej. Libretto znamy prawie wszyscy w Europie, bo zawarte jest w księdze, której prawie nikt z nas nie przeczytał, czyli w hitowej Biblii. Bo kto z nas nie słyszał o proroctwie św. Jana i czterech jeźdźcach apokalipsy ? Zwłaszcza w kontekście fałszywej pandemii i następującej zaraz po niej dziwnej wojny na wschodzie ? Akt drugi tak jakby pomału się kończy, lecz zaraz mamy ciąg dalszy. Z lektury tej księgi nabożnej, a jak nie, to choćby z Wyborczej, dowiemy się, bez pudła, co będzie w następnym odcinku. W tej kwestii eksperci Jan i Adam, o dziwo, wyraźnie są zgodni. Opinie się pokrywają. Część trzecia spektaklu to „Głód”.
