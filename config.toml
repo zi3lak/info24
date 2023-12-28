@@ -1,6 +1,6 @@
 baseURL = 'https://info24.nudawaj.online/'
 languageCode = 'en-us'
-Title = 'info24'
+Title = 'CyberSentinel'
 theme = 'PaperMod'
 relativeurls = true
 
